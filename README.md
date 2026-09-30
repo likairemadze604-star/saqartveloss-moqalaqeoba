@@ -1,1 +1,0 @@
-# saqartveloss-moqalaqeoba
